@@ -1,3 +1,3 @@
-# I am Sean, Fortnite Pro
+# I am Sean, a Fortnite Pro
 
 Thank you for coming. Today we are going to talk about...
